@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @blaz-bot
+- 👀 I’m interested in boobs
+- 🌱 I’m currently learning stuff
+- 💞️ I’m looking to collaborate on yo momma
+- 📫 How to reach me ask yo momma
